@@ -1,4 +1,4 @@
-# X - Executive Assistant to CEO
+# Rosalie Tiu - Executive Assistant to CEO
 
 ## About Me
 I am an Executive Assistant to the CEO of an IT company based in Dubai that offers Managed Services, cloud migration, and Cybersecurity solutions. With over 8 years of experience in the GCC, I have transitioned from the hospitality sector to the IT corporate world. My expertise also includes social media content creation and brand marketing.
